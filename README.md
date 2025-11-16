@@ -1,0 +1,1 @@
+# smart-farming-advisory-minor-7th-sem-
